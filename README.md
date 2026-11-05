@@ -1,6 +1,6 @@
 # Olá, eu sou o Kauan 👋
 
-> `SYSTEM LOG:` cada projeto é uma nova missão.
+> `SYSTEM LOG:` cada projeto é um novo purgatório.
 
 ### 📡 Sobre mim
 
